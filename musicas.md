@@ -1,3 +1,0 @@
-#Photograph
-#One
-#Love Someone
